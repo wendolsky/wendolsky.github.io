@@ -1,1 +1,0 @@
-# wendolsky.github.io
